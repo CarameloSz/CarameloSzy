@@ -16,3 +16,5 @@ Fork Mine On replit!
 
 
 ### DONT FORGET TO GIVE CREDIT.
+
+![Szy](https://c.tenor.com/_5mkY1tYS30AAAAd/ha-seul-loona.gif)
